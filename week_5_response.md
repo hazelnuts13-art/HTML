@@ -63,7 +63,8 @@ My partner and I exchanged well-what-do-you-know glances. But in his eyes I saw 
 
 [Hamster sticker meme](https://www.sigstick.com/pack/V7aN1eDwpVqbtzYCCswv-imut-hamster)  
 
-[Goofy hamster](<img width="230" height="219" alt="image" src="https://github.com/user-attachments/assets/a76739c2-6463-47a3-9abc-1bff88ff1ebb" />)
+![Goofy hamster](<img width="128" height="128" alt="image" src="https://github.com/user-attachments/assets/71cefe48-95d4-4d2d-92dc-26ee6012dffb" />) 
+
 
 
 
