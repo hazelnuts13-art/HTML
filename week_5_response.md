@@ -1,8 +1,8 @@
 ## Week 5 responses 
 At least bros improving but I didn't say nun about her seeing me in person
-*****crying emoji* 
-*****crying emoji*
-*****crying emoji*
+**** *crying emoji* 
+**** *crying emoji*
+**** *crying emoji*
 
 This phrase suggests a nuanced, and perhaps defensive, stance on a developing, likely romantic or platonic, relationship.
 Here is a breakdown of the sentiment:
