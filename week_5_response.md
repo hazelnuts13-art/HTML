@@ -59,7 +59,7 @@ The Christian Century
 My partner and I exchanged well-what-do-you-know glances. But in his eyes I saw my own concern that someone had indoctrinated our child without our consent. 
 
 
-[text] (URL) 
+[text](URL) 
 
 [Hamster sticker meme](https://www.sigstick.com/pack/V7aN1eDwpVqbtzYCCswv-imut-hamster)  
 
